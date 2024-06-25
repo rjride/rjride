@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rahulkharwar250704@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1EQj7ZHISapJKf_ryT-2LEFsxYUNj9JDk/view?usp=sharing](https://drive.google.com/file/d/1EQj7ZHISapJKf_ryT-2LEFsxYUNj9JDk/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1EQj7ZHISapJKf_ryT-2LEFsxYUNj9JDk/view?usp=sharing](https://drive.google.com/file/d/1t9ZJP8QyihGwWemSGH-YMR97qtVWUqfO/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
